@@ -1,2 +1,0 @@
-# cv
-Maddy's Site
